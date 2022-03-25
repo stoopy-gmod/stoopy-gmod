@@ -1,4 +1,4 @@
- # Hi there, I'm Stoopy - aka [Snoopy] 👋 
+ # Hi there, I'm Stoopy - aka Snoopy 👋 
 ## I'm a Developer, and a Gamer. 
 
 - 🌱 I’m currently learning everything 🤣
