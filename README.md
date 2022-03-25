@@ -20,7 +20,7 @@
 - Created S Inventory 
 <br />
 
-## > Commission Me <.
+## > Commission Me <
 - Garry's Mod: Contact Stoopy#6660 on Discord 
 - Discord Bots: Contact Stoopy#6660 on Discord 
 # > Prices < 
